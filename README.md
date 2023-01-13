@@ -1,1 +1,1 @@
-# skilledscript..github.io
+# skilledscript.github.io
